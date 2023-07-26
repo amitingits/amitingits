@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Amit.
+- 👀 I’m interested and too much driven into Data Science the moment i learnt about it.
+- 🌱 I’m currently pursuing B.tech in Data Science from GHRCE, Nagpur.
+- 💞️ I’m looking forward to work in big MNC's like Amazon and showcase my analytical skills.
+- 📫 You can always reach me by writing me an email or dm me on my Instagram handle.
